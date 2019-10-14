@@ -17,3 +17,4 @@ Hardware:
 Madison Mill 8-Pack 0.75 x 0.75 Poplar Wood Button Plugs | 2 (16 total)|  2.68
 Madison Mill 6-Pack 1 x 1 Poplar Wood Button Plugs | 1 |  2.68
 Common Screws 1 5/8" | 10 | |
+2" long 3/8" diameter Wooden Peg | 6 | |
