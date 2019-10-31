@@ -18,4 +18,4 @@ Madison Mill 6-Pack 1 x 1 Poplar Wood Button Plugs | 3 (need 16) |  2.68 |
 Common Screws 1 5/8" | ~24 | On hand|
 Common Screws 1" (for slats) | ~34 | On hand |
 Madison Mill 18-Pack Wood Oak Dowel Pins (Actual: 0.375-in x 2-in)| 12 | 2.68 |
-Kreg Paint Grade Wood Plug | 24 (plugss) | 5.48
+Kreg Paint Grade Wood Plug | 24 (plugs) | 5.48
